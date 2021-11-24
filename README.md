@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Gulhe-alt
-- And I'm Noob 
+- And I  love databases open for study
